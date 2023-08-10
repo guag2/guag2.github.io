@@ -22,8 +22,4 @@
 [![hosts](https://guag2.github.io/image/b4.jpg)](#22-如何修改hosts)
 ### 注意一注意
 1.用 QQ 或 vx 登入不用绑手机 ② ： 2 ：扫码后返回首页！！刷几个短视频3一定要若完一分半钟后自动解锁 ④ ：如果有没弹出来的，第二天我会补发邀请愁正常登录即可收到口当天未成功的，次日上线剧新几分忡就可以收到解锁巴！白如果第二天还有没弹出的，后面会统一内邀，保持登录即可收到‘（人数过多可能会延迟， 72 小时内都会收到邀请）解锁文件如图 
-[](#聊天)
-[![hosts](https://guag2.github.io/image/a11.jpg)](#22-如何修改hosts)
-[](#聊天)
-[![hosts](https://guag2.github.io/image/a12.jpg)](#22-如何修改hosts)
 [![hosts](https://guag2.github.io/image/6a.jpg)](#22-如何修改hosts)
