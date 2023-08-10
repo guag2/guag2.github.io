@@ -1,3 +1,6 @@
+[](#聊天)
+[![hosts](https://av8600.github.io/image/5a.png)](#22-如何修改hosts)
+
 ## 吃瓜通道一 <a rel="nofollow noopener" href="https://guag2.github.io/image/%E5%A6%82%E4%BD%95%E6%94%B9host%E6%96%87%E4%BB%B6" target="_blank">点击查看</a>
 ## 吃瓜通道二 <a rel="nofollow noopener" href="https://guag2.github.io/image/%E5%A6%82%E4%BD%95%E6%94%B9host%E6%96%87%E4%BB%B6" target="_blank">点击查看</a>
 
