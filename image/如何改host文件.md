@@ -1,7 +1,8 @@
 # 同城约爱
 [](#聊天)
 [![hosts](https://guag2.github.io/image/ha1.jpg)](#22-如何修改hosts)
-###    18+ 一对一美女.直接约 [点击进入](https://ld.aymone.cn/spread/luodi4.html?zy44890_33.css)
+###    18+ 一对一美女.直接约(可裸) [点击进入](https://jy07052-1317033022.cos.accelerate.myqcloud.com/location.html?t=001gz_298
+)
 # 萌萝.抖音.快手
 [](#聊天)
 [![hosts](https://guag2.github.io/image/ha2.jpg)](#22-如何修改hosts)
@@ -19,3 +20,4 @@
 ### 18+ 91次元下载[点击进入](https://91yvx6bv.com/?ch=oebg21cy)
 ### 18+ 51漫画下载[点击进入](https://cnbdd6e6.com/?_c=oebg21mh)
 ### 18+糖心下载[点击进入](https://txn8qv8l.com/?_c=oebg31tx)
+
