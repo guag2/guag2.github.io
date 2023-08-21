@@ -21,3 +21,5 @@
 ### 18+糖心下载[点击进入](https://txn8qv8l.com/?_c=oebg31tx)
 
 
+
+### 永久网址【GuaG2.Github.io】
