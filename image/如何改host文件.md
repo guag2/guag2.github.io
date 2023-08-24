@@ -19,7 +19,7 @@
 ### 18+ 91次元下载[点击进入](https://91yvx6bv.com/?ch=oebg21cy)
 ### 18+ 51漫画下载[点击进入](https://cnbdd6e6.com/?_c=oebg21mh)
 ### 18+糖心下载[点击进入](https://txn8qv8l.com/?_c=oebg31tx)
-
+### 18+海角社区[点击进入](https://d.sh51ne.com/?channel=ykhjqq1)
 
 
 ### 永久网址【GuaG2.Github.io】
